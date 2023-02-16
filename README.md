@@ -28,7 +28,6 @@ https://t.me/NFTDrainerscam
 
 
 
-key words
 
 nft-drainer
 eth-drainer
